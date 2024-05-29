@@ -1,4 +1,5 @@
 viktor send an invoice? and any other problem?
 
-poland vps and link accounts sunshine and pavlo each other
+1 611 030 481
+DASkdjl1kj2jlk312j3(use this for sunshine temporarily)
 
