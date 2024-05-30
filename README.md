@@ -9,13 +9,8 @@ DASkdjl1kj2jlk312j3(use this for sunshine temporarily)
 
 -To-cao (wordpress projecet , update asap)
 
-https://sendgb.com/IBED43Z6es0
+checked design?
 
-   abode indesign file.(will send file with wetranfer): to see this file you must setup an adode indesign app
+how many pages does it include?
 
-   Build website using this design.(Using wordpress Elementor)
-   2 days.
-   
-  Let me know approx price and timeline
-  
-
+let me know asap
