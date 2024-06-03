@@ -10,6 +10,8 @@ will process here including chat with client, ok?
 
 will going to send like this....pls check if ok
 
+----------------------------------
+
 hi
 I already read through the project descriptions.
 
