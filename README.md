@@ -8,5 +8,7 @@ and you give me access and account?
 
 -no update of tat`s invoice?
 
+-don`t use notepad, just git
+
 
 
