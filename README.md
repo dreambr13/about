@@ -1,6 +1,7 @@
 
 
--no update of tat`s invoice?(so can we withdraw now?)
+-kill me , once again anydesk no and pwd
+
 
 -acer: can you tell me about task test? asap
 
