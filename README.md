@@ -1,10 +1,6 @@
-yes
+ok but do your best
 
-1444557700
+it really comes from company
 
-Atlanti01
-
-pls check and give me result
-
-
+Believe!!!
 
