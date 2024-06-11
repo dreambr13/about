@@ -1,7 +1,6 @@
 -acer  1444557700
 Atlanti01
 
-- erc is whose?
 
 
 
