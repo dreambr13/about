@@ -1,1 +1,1 @@
-for Victor po also join in vps?
+will use acer po in chrome and viktor in IE   in vps  .... , OK?
