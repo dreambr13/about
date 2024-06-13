@@ -1,5 +1,15 @@
-will use acer po in chrome and viktor in IE   in vps  .... , OK?
+-acer
 
-done
+1602719641(US.com)
 
-Shine, are you using vozunik account? update soon
+Anydesk2024@
+
+-all
+
+when you don`t use upwork, make your account invisible and close browsers......
+
+-Shine, pls use vozunik account
+
+-elegent
+
+not yet, soon
