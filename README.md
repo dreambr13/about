@@ -1,4 +1,10 @@
 -acer : are you using USA computer?
 
-whose account is this?(sviatoslav's account has no connect)   where do I charge money for connects?
+upload git email so that I can invite(what does this mean?)
+
+
+-(sviatoslav's account has no connect)  so  where do I charge money for connects?
+
+
+
 
