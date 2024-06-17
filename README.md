@@ -1,4 +1,6 @@
--acer : are you using USA computer?
+-acer : are you using USA computer?(1602719641
+
+Anydesk2024@)
 
 upload git email so that I can invite(what does this mean?)
 
