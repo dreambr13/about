@@ -1,3 +1,7 @@
+
+http://lotto.bclc.com
+
+
 加拿大keno20
 
    开奖结果采用加拿大彩票公司BCLC开奖数据【BCLC官网：lotto.bclc.com】。
