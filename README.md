@@ -1,3 +1,5 @@
+delete all unnecessary things from git
+
 so pls tell acer to check about tg bot
 
 -acer(pls check this, if you slove this, we can get really much... it`s real.....)
