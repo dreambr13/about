@@ -1,5 +1,6 @@
+-bear: are you working with H.tiger?
 
-http://lotto.bclc.com
+-acer:   http://lotto.bclc.com
 
 
 加拿大keno20
