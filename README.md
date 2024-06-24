@@ -1,12 +1,3 @@
-delete all unnecessary things from git
-
-so pls tell acer to check about tg bot
-
--acer(pls check this, if you slove this, we can get really much... it`s real.....)
-
-http://lotto.bclc.com
-
-
 加拿大keno20
 
    开奖结果采用加拿大彩票公司BCLC开奖数据【BCLC官网：lotto.bclc.com】。
