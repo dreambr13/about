@@ -7,6 +7,6 @@ This is Python self-assessment test.
 
 (https://hire.glider.ai/instructions/assignment/z2rTgDqAGbk93nMYJ/290162/ixxEaXCA6aePHBF4n)
 
-
+Erik is good  , but I think together with acer!!!
 
 
