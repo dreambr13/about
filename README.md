@@ -10,4 +10,6 @@ This is Python self-assessment test.
 Erik is good  , but I think together with acer!!!
 and as you can see the mail, it`s not urgent, pls prepare well and make it perfect!!!
 
+why not? you can test with your face... the linkedin profile has no face. lol
+
 
