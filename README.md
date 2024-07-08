@@ -7,4 +7,8 @@ This is Python self-assessment test.
 
 (https://hire.glider.ai/instructions/assignment/z2rTgDqAGbk93nMYJ/290162/ixxEaXCA6aePHBF4n)
 
+-----------------------------------------
+
+bear, can you ask about previous work to Brazil? pls tell me asap
+
 
