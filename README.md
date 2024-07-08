@@ -11,4 +11,7 @@ This is Python self-assessment test.
 
 bear, can you ask about previous work to Brazil? pls tell me asap
 
+--------------------------------
+
+adonis , not paid yet??? pls check your skype
 
