@@ -1,17 +1,10 @@
-1444557700
+answer one by one on your git
 
-mail from (Parul Singh)
+1. adonis not paid yet? and pls check his skype asap
 
-This is Python self-assessment test.
-10 questions  / time-limit: 60min
+2. bear, can you bring back your former work of React Native?
 
-(https://hire.glider.ai/instructions/assignment/z2rTgDqAGbk93nMYJ/290162/ixxEaXCA6aePHBF4n)
+3. and do python test(it`s better to test sunshine with acer)
 
------------------------------------------
-
-bear, can you ask about previous work to Brazil? pls tell me asap
-
---------------------------------
-
-adonis , not paid yet??? pls check your skype
+4. pr.it    sent pls check and tell me the result
 
